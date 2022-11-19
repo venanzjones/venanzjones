@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Alessandro.
+- 🌱 I’m currently studying Mathematical Engineering - Statiscical Learning at Politecnico di Milano.
